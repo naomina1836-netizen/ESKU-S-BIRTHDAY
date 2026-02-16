@@ -1,1 +1,0 @@
-# ESKU-S-BIRTHDAY
